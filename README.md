@@ -2,4 +2,4 @@
 - 👀 I’m interested in brand communication, user experience design and strategic communication planning
 - 🌱 I’m currently learning how to become a better human
 - 💞️ I’m looking to collaborate on user experience design for health tech startups
-- 📫 you can always reach me over whatsapp +8801841733838
+- 📫 you can always reach me on linkedin: https://www.linkedin.com/in/smnawed/
